@@ -1,0 +1,2 @@
+# gk
+türkiyenin en kalitelisi
